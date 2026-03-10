@@ -20,7 +20,7 @@ Aspiring engineering student with a strong foundation in mechanical design, pass
 #### Education
 - **Cornell University**  
   *Bachelor of Science in Mechanical Engineering, Minor in Astronomy*  
-  GPA: 2.841/4.0 | Graduation: May, 2027
+  GPA: 3.02/4.0 | Graduation: May, 2027
 
 - **Addison Trail High School**  
   *High School Diploma*  
